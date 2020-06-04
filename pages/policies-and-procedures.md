@@ -11,7 +11,7 @@ keywords: 'policies and procedures, current students, advising'
 ![ETD]({{site.baseurl}}/media/resized2students.jpg){:.responsive-img .img-right}
 ## Change of Program Procedures
 ### To Be Completed in Canvas:
-**Step One:** You must confirm that you have a cumulative 2.0 GPA in order to be eligible for a Change of Program. If you do not have a cumulative 2.0 GPA, you will not be able to transfer to the College of Liberal Arts. If you do not have a 2.0 GPA at this time, you should meet with an advisor in your college to create an academic plan to improve your GPA prior to your transfer. **You must visit the advising center to be added to the Canvas course.**
+**Step One:** You must confirm that you have a cumulative 2.0 GPA in order to be eligible for a Change of Program. If you do not have a cumulative 2.0 GPA, you will not be able to transfer to the College of Liberal Arts. If you do not have a 2.0 GPA at this time, you should meet with an advisor in your college to create an academic plan to improve your GPA prior to your transfer. **In order to start the Change of Program process, you must email [CLAAAC@temple.edu](mailto:CLAAAC@temple.edu) with COP in the subject line. You must include your name, your TUid number, and what major you would like to switch to.**
 
 **Step Two:** Watch a brief College of Liberal Arts Change of Program video, which covers important information about academic advising and collegial requirements. Please pay close attention as you will be required to answer a brief quiz and answer all questions correctly prior to completing your Change of Program application.
 
