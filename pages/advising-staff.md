@@ -32,7 +32,7 @@ ___
 
 Patrice is a Philadelphia native and a proud Temple Made alum. Patrice obtained her Bachelorís degree from Temple University and her Master of Arts degree from Saint Josephís University. As an undergraduate student at Temple, Patrice worked in student services in the College of Liberal Arts and served as a peer mentor in the Act 101 Program in the former Russell Conwell Educational Services Center. Patriceís liberal arts education has allowed her the opportunity to be flexible in her career. Patrice has worked as a Student Services Specialist for Temple Universityís School of Medicine, a Workerís Compensation Case Manager in the insurance industry, and a Video & Evidence Intel Specialist in the transportation industry. Realizing that higher education was her true passion, Patrice transitioned back to Temple and is excited to support students along their academic journey. In her spare time, Patrice enjoys spending time with loved ones, writing, reading, painting with a twist, cooking and listening to music.
 
-**Favorite Books:** _The Fountainhead_ by Ayn Rand, _In Search of Satisfaction_ by J. California Cooper, _Well- Read Black Girl_ by Glory Edim, _Defining Moments in Black History: Reading Between the Lies_ by Dick Gregory, _No Disrespect_ by Sister Souljah<br><br>
+**Favorite Books:** _The Fountainhead_ by Ayn Rand, _In Search of Satisfaction_ by J. California Cooper, _Well- Read Black Girl_ by Glory Edim, _Defining Moments in Black History: Reading Between the Lies_ by Dick Gregory, _No Disrespect_ by Sister Souljah<br>
 **Advising Interests:** First-generation students, Freshman and Sophomore students, Major/Minor exploration, New student orientation
 
 ___
