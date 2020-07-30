@@ -13,6 +13,17 @@ Our knowledgeable and dedicated team of academic advisors will be with you from 
 
 ___
 
+**Nicole Every**<br>
+**B.A., University of Vermont, Anthropology**<br>
+**M.S., Champlain College, Human Relations and Organizational Development**<br>
+
+Nicole is native from Boston, Massachusetts, but grew up in Pottstown, PA. Nicole received her Bachelor of Arts in Anthropology from the University of Vermont, where she also minored in Global Studies and had the opportunity to study abroad in Rome, Italy. After completing her undergraduate career, Nicole worked in Online Admissions at Champlain College in Burlington, VT where she supported non-traditional students in their aspirations of earning an undergraduate degree. While at Champlain College, Nicole received her Masters of Science in Human Relationships and Organizational Development. In her free time, Nicole loves to travel, attempt to make recipes she found on Pinterest, and explore new coffee shops in the city. She is excited to be a part of the Temple community and help students pursue their academic interests!
+
+**Favorite Books:** _Harry Potter Series_ by by J.K. Rowling, _The Little Prince_ by Antoine de Saint-Exupery<br>
+**Advising Interests:** First-Generation Students, Freshman and Sophomore Students, Non-Traditional Students
+
+___
+
 ![Xiomara I. Gonzalez]({{site.baseurl}}/media/croppedxiomaragonzalez.jpg){:.responsive-img .img-right}
 **[Xiomara I. Gonzalez](mailto:xiomara.gonzalez@temple.edu)**<br>
 **B.A., Rowan University, History**<br>
@@ -20,8 +31,7 @@ ___
 
 Xiomara is a native of Puerto Rico but was raised in South Jersey. Xiomara received her Bachelor of Arts in History and Master of Arts in Counseling in Educational Settings from Rowan University. As a graduate student, Xiomara worked as a Graduate Assistant for the Academic Success Center, where she fell in love with higher education. Once Xiomara graduated with her Master’s degree, she joined the University Advising Center and the Rohrer College of Business as an Academic Advisor at Rowan University. Xiomara enjoys thrifting, going to the movies, and spending time with her loved ones. Xiomara is excited to have the opportunity to continue to help students succeed and grow academically through her role in the College of Liberal Arts.
 
-**Favorite Quotes:** _“Every great dream begins with a dreamer. Always remember, you have within you the strength, the patience, and the passion to reach for the stars to change the world.” -Harriet Tubman "I've never been content with the status quo. To my mind, satisfaction has always been the enemy of progress." -Henry M. Rowan_
-
+**Favorite Quotes:** _“Every great dream begins with a dreamer. Always remember, you have within you the strength, the patience, and the passion to reach for the stars to change the world.” -Harriet Tubman "I've never been content with the status quo. To my mind, satisfaction has always been the enemy of progress." -Henry M. Rowan_<br>
 **Advising Interests:** First-generation Students, Athletes, and Study Abroad
 
 ___
