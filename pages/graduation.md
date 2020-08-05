@@ -9,7 +9,7 @@ title: Graduation
 ---
 ![CLA Graduation]({{site.baseurl}}/media/resized AdvisingGraduation.png){:.responsive-img .img-right}
 
-## Apply for your Degree
+## Apply for Your Degree
 If you are planning to complete all remaining degree requirements in December 2020 you must apply for graduation through Self Service Banner. You can apply to graduate by following the steps below:
 
 1. In TUPortal, select the Student Tools Tab<br>
