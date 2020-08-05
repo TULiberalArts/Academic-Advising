@@ -13,7 +13,7 @@ Our knowledgeable and dedicated team of academic advisors will be with you from 
 
 ___
 
-**Nicole Every**<br>
+**[Nicole Every](mailto:nicole.every@temple.edu)**<br>
 **B.A., University of Vermont, Anthropology**<br>
 **M.S., Champlain College, Human Relations and Organizational Development**<br>
 
@@ -36,7 +36,7 @@ Xiomara is a native of Puerto Rico but was raised in South Jersey. Xiomara recei
 
 ___
 
-**Patrice N. Hicks-Simms**<br>
+**[Patrice N. Hicks-Simms](mailto:patrice.hicks@temple.edu)**<br>
 **B.A., Temple University, Criminal Justice**<br>
 **M.A., Saint Joseph's University, Writing Studies**<br>
 
