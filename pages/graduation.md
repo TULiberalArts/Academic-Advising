@@ -18,8 +18,6 @@ If you are planning to complete all remaining degree requirements in December 20
 
 _**If you are also earning a certificate, you must apply separately for your certificate. This does not apply to minors or double majors.**_
 
-The College of Liberal Arts May undergraduate ceremony will take place on Thursday, May 7, 2020 at 5:30 p.m. in the Liacouras Center. Details and ticket information will be emailed to students in February.
-
 ## Latin Honors
 To be eligible for Latin Honors, **at least 60 credits must be completed at Temple University** and the final cumulative GPA must meet the qualifying standards. The qualifying cumulative GPA standards for CLA students graduating in August 2020, December 2020, and May 2020 are as follows:
 
