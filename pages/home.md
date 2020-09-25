@@ -16,7 +16,7 @@ promotion-table: true
 The Center for Academic Advising and Professional Development counsels students on issues relating to both classroom and career. We can help you navigate your curriculum, choose a major, explore career opportunities and determine your post-graduation plans.
 
 ## Make an Appointment
-If you are a **new student for fall 2020** please refer to your next steps channel in TUPortal and visit the [New Student Orientation website](https://orientation.temple.edu/freshmen-orientation). Should you have questions please email [orientation@temple.edu](mailto:orientation@temple.edu). 
+If you are a new student for spring 2021 please refer to your next steps channel in TUPortal and visit the [New Student Orientation website](https://orientation.temple.edu/freshmen-orientation). Should you have questions please email [orientation@temple.edu](mailto:orientation@temple.edu).
 
 For our **current Main campus students**, we will no longer host in-person appointments. We will conduct all appointments via [**Zoom**](https://its.temple.edu/zoom). To schedule an academic advising appointment, see below for details:
 
