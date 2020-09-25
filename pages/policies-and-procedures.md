@@ -23,12 +23,12 @@ Upon completing the course you can make an appointment with an academic advisor 
 
 If you have any questions, please contact us at [claaac@temple.edu](mailto:claaac@temple.edu). Please make sure to include “COP” in the email subject line and your TUID in the email.
 
-## What happens after I submit the form?
+**What happens after I submit the form?**<br>
 Your request to transfer to the College of Liberal Arts will then be reviewed to ensure that you are eligible for transfer. If you have completed all the steps above and have a 2.0 GPA, your request will be forwarded to the Office of the University Registrar for processing and may take 5 to 7 business days to be finalized. You will receive e-mail notification from the Office of the University Registrar once your Change of Program is complete.
 
 Please note that your Change of Program is effective for the semester after you apply. If you submit a Change of Program in the fall semester, you will be a College of Liberal Arts student in the spring semester. However, you will still be able to register for College of Liberal Arts courses while the Change of Program is being processed.
 
-### Declaring Programs within the College of Liberal Arts 
+## Declaring Programs within the College of Liberal Arts 
 If you **are a student in the College of Liberal Arts** and want to change your major/minor/certificate within the College of Liberal Arts please fill out the [Declare/Drop a CLA Major, Minor, Certificate or Specialization Form](https://forms.gle/2B9bRV3Sh1BXrxoP9).
 
 If you **are a student in another college** and want to add to your current major or add minor/certificate within the College of Liberal Arts please fill out this version of the [Declare/Drop a CLA Major, Minor, Certificate or Specialization Form](https://forms.gle/bnZzXRfrHpZnHEeT9).
