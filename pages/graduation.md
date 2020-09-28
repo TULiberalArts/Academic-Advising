@@ -19,11 +19,11 @@ If you are planning to complete all remaining degree requirements in December 20
 _**If you are also earning a certificate, you must apply separately for your certificate. This does not apply to minors or double majors.**_
 
 ## Latin Honors
-To be eligible for Latin Honors, **at least 60 credits must be completed at Temple University** and the final cumulative GPA must meet the qualifying standards. The qualifying cumulative GPA standards for CLA students graduating in August 2020, December 2020, and May 2020 are as follows:
+To be eligible for Latin Honors, **at least 60 credits must be completed at Temple University** and the final cumulative GPA must meet the qualifying standards. The qualifying cumulative GPA standards for CLA students graduating in August 2020, December 2021 and May 2021 are as follows:
 
 - Summa Cum Laude = at least a 3.95 cumulative GPA
-- Magna Cum Laude = at least a 3.90 cumulative GPA
-- Cum Laude = at least a 3.84 cumulative GPA
+- Magna Cum Laude = at least a 3.89 cumulative GPA
+- Cum Laude = at least a 3.80 cumulative GPA
 
 You may view the full policy on the [Undergraduate Bulletin](http://bulletin.temple.edu/undergraduate/academic-policies/honors-academic-achievement/).
 
