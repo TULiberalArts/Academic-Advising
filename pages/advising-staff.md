@@ -90,7 +90,7 @@ Timothy’s goal as an Academic Advisor is to support students in realizing and 
 
 ___
 
-**[Prema Prabhakar](mailto:prema.prabhakar@temple.edu))**<br>
+**[Prema Prabhakar](mailto:prema.prabhakar@temple.edu)**<br>
 **B.A. Hampshire College, Literature/Religion/Writing**<br>
 **M.A. University of California, Santa Cruz, Literature**<br>
 **PhD University of California, Santa Cruz, Literature**<br>
