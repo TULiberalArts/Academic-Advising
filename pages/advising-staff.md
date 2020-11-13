@@ -97,7 +97,8 @@ ___
 
 Prema grew up in South Jersey with the exception of a 1-year hiatus in Mumbai. She went to Hampshire College in Massachusetts where she wrote her senior project on “Waiting.” From there she crossed the country to northern California, receiving her MA and PhD from UC, Santa Cruz. Her PhD work touched upon pretty much every one of the liberal arts departments: literature, performance, mental health, visual studies, religion etc. etc. She has used her eclectic liberal arts background to teach college, work at a crisis line, develop mental health programming and freelance. She is thrilled to be able to use this medley of experiences to advise the lovely and diverse students in Temple’s College of Liberal Arts. Prema believes that the critical thinking skills and creativity fostered by the liberal arts is crucial to achieving deep social understanding, empathy, and general enlightenment. She likes to be holistic in her advising--taking into account students’ academic and emotional well-being. When she is not writing emails about major requirements and credit hours, Prema likes to have daily existential crises, drink tea, read beautiful writing and occasionally talk to other people. 
 
-**Advising Interests:** First-generation Students, Non-traditional Students, Transfer Students, International Students
+**Favorite Authors:** Virginia Woolf, Helen Oyeyemi, Janet Frame, Simone Weil<br>
+**Advising Interests:** Non-Traditional Students, Humanities Students, Graduate School Advising
 
 ___
 
@@ -108,8 +109,7 @@ ___
 
 Melanie grew up in the humble city of Rochester, NY. She attended SUNY Purchase College, outside of NYC, for her undergraduate studies, and her love for the written word pushed her to graduate with a double major in literature and journalism. Not long after graduation, she moved to Iowa City, IA to pursue graduate studies, and eventually left The University of Iowa with an MA in English literature and an MAT in English education. These degrees propelled Melanie to India, where she spent six years teaching high school English to students from all over the world at a small international school in the foothills of the Himalayas. Once she returned to the U.S., Melanie transitioned from the classroom to the advising office, where she has the pleasure of serving Temple’s lovely students.  
 
-**Favorite Authors:** Virginia Woolf, Helen Oyeyemi, Janet Frame, Simone Weil<br>
-**Advising Interests:** Non-Traditional Students, Humanities Students, Graduate School Advising
+**Advising Interests:** First-generation Students, Non-traditional Students, Transfer Students, International Students
 
 ___
 
