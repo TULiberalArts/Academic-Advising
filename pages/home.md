@@ -16,11 +16,10 @@ promotion-table: true
 The Center for Academic Advising and Professional Development counsels students on issues relating to both classroom and career. We can help you navigate your curriculum, choose a major, explore career opportunities and determine your post-graduation plans.
 
 ## Make an Appointment
-If you are a new student for spring 2021 please refer to your next steps channel in TUPortal and visit the [New Student Orientation website](https://orientation.temple.edu/freshmen-orientation). Should you have questions please email [orientation@temple.edu](mailto:orientation@temple.edu).
+**New Students for Spring 2021**- If you are a new student for spring 2021 please refer to your next steps channel in TUPortal and visit the [New Student Orientation website](https://orientation.temple.edu/new-student-orientation). 
 
-To schedule an academic advising appointment, if you are a student who has a primary major in the College of Liberal Arts, see below for details:
+**Current Students who are enrolled in fall 2020 courses**- To schedule an academic advising appointment, if you are a student who has a primary major in the College of Liberal Arts, see below for details to book your appointment on the Online Advising Appointment System:
 
-### The Online Advising Appointment System
 - Go to [TUPortal](https://fim.temple.edu/idp/profile/cas/login;jsessionid=B615BC9901343362C6E4DCF7EB5F68A6?execution=e1s1)
 - Click on your **Student Tools** tab
 - Scroll down the center column & select **"Schedule"** under the "Appointment System" box
