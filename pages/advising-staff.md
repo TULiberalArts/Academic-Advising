@@ -90,6 +90,18 @@ Timothy’s goal as an Academic Advisor is to support students in realizing and 
 
 ___
 
+**[Francesca Pugh-Opher](mailto:francesca.pugh-opher@temple.edu)**<br>
+**B.A., Temple University, Criminal Justice**<br>
+**M.A., Arcadia University, Elementary Education**<br>
+**PhD, Walden University, Education: Learning, Instruction, and Innovation**<br>
+
+Francesca is a Philadelphia native and a proud Temple alum. Francesca received her Bachelor of Arts degree from Temple University and her Master of Arts degree from Arcadia University. Francesca’s doctoral research focused on Early Childhood teacher experiences in Mandarin Chinese language learning classrooms in the United States. Francesca worked as an Elementary School teacher in Philadelphia, New Jersey, and Delaware. Francesca also taught Adult Basic Skills as well as Transitional Reading and Writing courses at Camden County College (Camden Campus). Prior to joining the College of Liberal Arts, Francesca worked as an Academic Advisor at Rowan University. Francesca enjoys travelling abroad, learning foreign languages, reading, cooking, and playing with her cats.
+
+**Favorite Books:** _The Autobiography of Malcolm X_ by Alex Haley, _Battle Hymn of the Tiger Mother_ by Amy Chua, _Year of Yes_ by Shonda Rhimes<br>
+**Advising Interests:** First generation students, Non-traditional students, Retention
+
+___
+
 **[Prema Prabhakar](mailto:prema.prabhakar@temple.edu)**<br>
 **B.A. Hampshire College, Literature/Religion/Writing**<br>
 **M.A. University of California, Santa Cruz, Literature**<br>
@@ -141,7 +153,7 @@ ___
 **[Dr. Mark Walker, Ph.D.](mailto:mark.walker0002@temple.edu)**<br>
 **BA (Hons) History, University of Essex (2009)**<br>
 **MA History, Old Dominion University (2011)**<br>
-**Ph.D. History, University of Essex (2016)**<br>
+**PhD History, University of Essex (2016)**<br>
 
 Dr. Mark Walker is proud to be a gay immigrant to the US from Britain, born and raised in East London. He had gone through three different visas (J-1, F-1 and K-1) before moving to the United States in March 2016. He credits Temple alum Edie Windsor for making it possible; her Supreme Court victory in 2013 allowed his now-husband to finally sponsor him for family immigration. A successful ‘Ph.D. survivor’, Mark spent five years doing all the usual doctoral student activities: reading more than he thought possible, researching at a range of archives and libraries handling documents that were hundreds of years old and sometimes too unique to even touch, attending and presenting at academic conferences, and teaching. He began by teaching American students about European history and then switched to teaching European students about American history. In 2016 he completed and successfully defended his magnum opus ‘The Melancholy Pompous Sight’: Royal Deaths and the Politics of Ritual in the Late Stuart Monarchy, c. 1685-1714, and received his Ph.D. in History from the University of Essex. After moving to Philadelphia, he briefly taught at Drexel University before coming to Temple in 2017.
 
