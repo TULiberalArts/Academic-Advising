@@ -43,7 +43,7 @@ ___
 Patrice is a Philadelphia native and a proud Temple Made alum. Patrice obtained her Bachelors degree from Temple University and her Master of Arts degree from Saint Joseph's University. As an undergraduate student at Temple, Patrice worked in student services in the College of Liberal Arts and served as a peer mentor in the Act 101 Program in the former Russell Conwell Educational Services Center. Patrice's liberal arts education has allowed her the opportunity to be flexible in her career. Patrice has worked as a Student Services Specialist for Temple University's School of Medicine, a Worker's Compensation Case Manager in the insurance industry, and a Video & Evidence Intel Specialist in the transportation industry. Realizing that higher education was her true passion, Patrice transitioned back to Temple and is excited to support students along their academic journey. In her spare time, Patrice enjoys spending time with loved ones, writing, reading, painting with a twist, cooking and listening to music.
 
 **Favorite Books:** _The Fountainhead_ by Ayn Rand, _In Search of Satisfaction_ by J. California Cooper, _Well- Read Black Girl_ by Glory Edim, _Defining Moments in Black History: Reading Between the Lies_ by Dick Gregory, _No Disrespect_ by Sister Souljah<br>
-**Advising Interests:** First-generation students, Freshman and Sophomore students, Major/Minor exploration, New student orientation
+**Advising Interests:** First-generation students, Freshman and Sophomore Students, Major/Minor Exploration, New Student Orientation
 
 ___
 
@@ -110,7 +110,7 @@ ___
 Prema grew up in South Jersey with the exception of a 1-year hiatus in Mumbai. She went to Hampshire College in Massachusetts where she wrote her senior project on “Waiting.” From there she crossed the country to northern California, receiving her MA and PhD from UC, Santa Cruz. Her PhD work touched upon pretty much every one of the liberal arts departments: literature, performance, mental health, visual studies, religion etc. etc. She has used her eclectic liberal arts background to teach college, work at a crisis line, develop mental health programming and freelance. She is thrilled to be able to use this medley of experiences to advise the lovely and diverse students in Temple’s College of Liberal Arts. Prema believes that the critical thinking skills and creativity fostered by the liberal arts is crucial to achieving deep social understanding, empathy, and general enlightenment. She likes to be holistic in her advising--taking into account students’ academic and emotional well-being. When she is not writing emails about major requirements and credit hours, Prema likes to have daily existential crises, drink tea, read beautiful writing and occasionally talk to other people. 
 
 **Favorite Authors:** Virginia Woolf, Helen Oyeyemi, Janet Frame, Simone Weil<br>
-**Advising Interests:** Non-Traditional Students, Humanities Students, Graduate School Advising
+**Advising Interests:** Non-traditional Students, Humanities Students, Graduate School Advising
 
 ___
 
