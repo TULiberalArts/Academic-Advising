@@ -11,6 +11,9 @@ faculty: profiles/faculty.html
 ---
 Our knowledgeable and dedicated team of academic advisors will be with you from the moment you arrive on campus for orientation through your graduation day.
 
+**Diversity, Equity and Inclusion Statement**<br>
+The College of Liberal Arts exemplifies Temple University’s core values of diversity and inclusion: creating and sustaining a teaching, learning and research community that not only includes but welcomes and values differences based on religion, race, ethnicity, nationality, gender, gender identity, sexual orientation, disability, veteran status, age and family/marital status.
+
 ___
 
 **[Nicole Every](mailto:nicole.every@temple.edu)**<br>
