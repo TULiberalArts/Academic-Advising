@@ -31,7 +31,7 @@ Please note that your Change of Program is effective for the semester after you 
 ## Declaring Programs within the College of Liberal Arts 
 If you **are a student in the College of Liberal Arts** and want to change your major/minor/certificate within the College of Liberal Arts please fill out the [Declare/Drop a CLA Major, Minor, Certificate or Specialization Form](https://forms.gle/2B9bRV3Sh1BXrxoP9).
 
-If you **are a student in another college** and want to add to your current major or add minor/certificate within the College of Liberal Arts please fill out this version of the [Declare/Drop a CLA Major, Minor, Certificate or Specialization Form](https://forms.gle/bnZzXRfrHpZnHEeT9).
+If you **are a student in another college** and want to add to your current major or add minor/certificate within the College of Liberal Arts please fill out this version of the [Declare/Drop a CLA Major, Minor, Certificate or Specialization Form](https://forms.gle/e5eVysbw8o1cfuPz5).
 
 ## Re-Enroll in Classes
 If you have been out of school for one fall or spring term, you must complete an [Undergraduate Request to Re-enroll form](https://liberalarts.temple.edu/sites/liberalarts/files/request_to_reenroll.pdf) to be admitted back into the College of Liberal Arts. Re-enrollment forms are accepted until August 1 for the fall term, December 1 for the spring term and April 1 for summer sessions.
