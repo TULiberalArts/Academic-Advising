@@ -9,27 +9,5 @@ title: Graduation
 ---
 ![CLA Graduation]({{site.baseurl}}/media/resized AdvisingGraduation.png){:.responsive-img .img-right}
 
-## Apply for your degree
-If you are planning to complete all remaining degree requirements in Summer 2021 you must apply for graduation through Self Service Banner. You can apply to graduate by following the steps below:
-
-1. In TUPortal, select the Student Tools Tab<br>
-2. Under Records right hand side select Apply to Graduate<br>
-3. Continue the application process until you come to the application submission confirmation<br>
-
-_**If you are also earning a certificate, you must apply separately for your certificate. This does not apply to minors or double majors.**_
-
-## Latin Honors
-To be eligible for Latin Honors, **at least 60 credits must be completed at Temple University** and the final cumulative GPA must meet the qualifying standards. The qualifying cumulative GPA standards for CLA students graduating in August 2020, December 2021 and May 2021 are as follows:
-
-- Summa Cum Laude = at least a 3.95 cumulative GPA
-- Magna Cum Laude = at least a 3.89 cumulative GPA
-- Cum Laude = at least a 3.80 cumulative GPA
-
-You may view the full policy on the [Undergraduate Bulletin](http://bulletin.temple.edu/undergraduate/academic-policies/honors-academic-achievement/).
-
-## Diplomas
-If you are academically cleared and do not have holds on your student record, you will be contacted via email with information on how to obtain your digital diploma, and with instructions on how to request a print diploma. If you have questions about the status of your diploma, please contact [diploma@temple.edu](mailto:diploma@temple.edu).
-
-Upon review of your academic history, if it is determined that you have NOT met all necessary degree requirements, you will be notified by an academic advisor through your Temple email account.
-
-_**Please email [claugrad@temple.edu](mailto:claugrad@temple.edu) if you have any graduation-related questions.**_
+## Graduation 
+Students enrolled in a degree-program, such as a Certificate, Bachelor, Master, or Doctoral degree, should apply to graduate when they become degree-eligible. Students should regularly meet with their academic advisors to ensure academic program requirements are being met. Review the general graduation processing timeline to learn when your degree will be transcripted, diplomas awarded, etc. Upon review of your academic history, if it is determined that you have NOT met all necessary degree requirements, you will be notified by an academic advisor through your Temple email account. _**Please email [claugrad@temple.edu](mailto:claugrad@temple.edu) if you have any graduation-related questions.**_
